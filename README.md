@@ -38,3 +38,50 @@ Marketing teams
 But students — who juggle 10× more micro‑tasks and deadlines — have nothing.
 
 This is a massive gap.
+
+
+
+🔥 2. Students manage more moving parts than many professionals
+A typical student handles:
+
+4–8 courses
+
+20–40 weekly tasks
+
+10–20 deadlines per month
+
+2–5 exams per term
+
+100+ pages of reading weekly
+
+group projects
+
+labs
+
+revision cycles
+
+job applications
+
+extracurriculars
+
+This is executive‑level complexity.
+
+Yet students are expected to manage it with:
+
+Notes app
+
+Calendar
+
+Email
+
+Blackboard/Moodle
+
+WhatsApp
+
+Google Drive
+
+Random reminders
+
+Memory
+
+It’s absurd.
